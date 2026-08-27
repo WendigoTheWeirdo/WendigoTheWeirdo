@@ -17,7 +17,7 @@
 ♰ I like to meet furry animals on GitHub and am willing to be friends with them. ♰
 
 
-# Wendigo's Interest
+# Wendigo's Fun Interest
 
 ♰ I like the color black. ♰
 
