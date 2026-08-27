@@ -29,7 +29,7 @@
 
 ♰ Umm, My Little Pony, I think? I don't remember if I've watched it already. (I'm not a fan of it.) ♰
 
-♰ I like using the ♰ so I can decorate with it. ♰
+♰ I like using the ♰/✟ so I can decorate with it. ♰
 
 
 
