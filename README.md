@@ -6,7 +6,7 @@
 
 # ✟About me✟
 
-♰ I'm 13 years old, or maybe 12 months. I'm from Singapore. My birthday is November 9. (Ofc, everyone has the same birthday as me.) ♰
+♰ I'm 13 years old, or maybe 13 months. I'm from Singapore. My birthday is November 9. (Ofc, everyone has the same birthday as me.) ♰
 
 ♰ I'm an awkward wendigo, plus I'm weird. And I'm a fan of furry animals and shows. ♰
 
