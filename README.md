@@ -37,6 +37,9 @@
 
 ♰ If you see a deer looking at you very creepy, like the deer is doing the creepy-looking. That's me. I'm stalking you at nighttime. ♰
 
+♰ I cry on my mind. If some animal rejected being my furry animal bestie. ♰
+
+♰ I look like a foolish wendigo. Because I am.. ♰
 
 <img width="400" height="100" alt="tumblr_4066c960964ada0081d4dd755fc7b06b_787dcd20_400" src="https://github.com/user-attachments/assets/01bcd5b9-c6f4-41b8-84ca-ba3ddc0fec9c" />
 
