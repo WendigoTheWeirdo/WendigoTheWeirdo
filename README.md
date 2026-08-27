@@ -2,9 +2,9 @@
 <img width="400" height="32" alt="tumblr_557f469287333b10e7a69a7ee35e97aa_92fdce87_400" src="https://github.com/user-attachments/assets/2e86915d-37dc-456f-bb31-ebce2142bf46" /><img width="400" height="32" alt="tumblr_557f469287333b10e7a69a7ee35e97aa_92fdce87_400" src="https://github.com/user-attachments/assets/2e86915d-37dc-456f-bb31-ebce2142bf46" />
 
  
-## ✟ Hello weird/awkward people!! ✟
+# ✟ Hello weird/awkward people!! ✟
 
-# ✟About me✟
+## ✟About Wendigo (Me)✟
 
 ♰ I'm 13 years old, or maybe 13 months. I'm from Singapore. My birthday is November 9. (Ofc, everyone has the same birthday as me.) ♰
 
@@ -16,8 +16,10 @@
 
 ♰ I like to meet furry animals on GitHub and am willing to be friends with them. ♰
 
+<img width="338" height="600" alt="tumblr_cbdd57503f28dafbfdf525271b1ec728_461370ae_400" src="https://github.com/user-attachments/assets/a90b5933-88e0-4b0c-861c-67e0377c0feb" />
 
-# Wendigo's Fun Interest
+
+## Wendigo's Fun Interest
 
 ♰ I like the color black. ♰
 
