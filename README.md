@@ -4,7 +4,7 @@
  
 # ✟ Hello weird/awkward people!! ✟
 
-## ✟About Wendigo (Me)✟
+## ✟ About Wendigo (Me) ✟
 
 ♰ I'm 13 years old, or maybe 13 months. I'm from Singapore. My birthday is November 9. (Ofc, everyone has the same birthday as me.) ♰
 
@@ -19,7 +19,7 @@
 <img width="338" height="600" alt="tumblr_cbdd57503f28dafbfdf525271b1ec728_461370ae_400" src="https://github.com/user-attachments/assets/a90b5933-88e0-4b0c-861c-67e0377c0feb" />
 
 
-## Wendigo's Fun Interest
+## ✟ Wendigo's Fun Interest ✟
 
 ♰ I like the color black. ♰
 
