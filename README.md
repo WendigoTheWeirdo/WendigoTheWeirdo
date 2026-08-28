@@ -41,6 +41,8 @@
 
 ♰ I look like a foolish wendigo. Because I am... ♰
 
+♰ I like stars.♰
+
 <img width="400" height="100" alt="tumblr_4066c960964ada0081d4dd755fc7b06b_787dcd20_400" src="https://github.com/user-attachments/assets/01bcd5b9-c6f4-41b8-84ca-ba3ddc0fec9c" />
 
 ## ✟ Thank you for reading my READ.ME!  ✟
