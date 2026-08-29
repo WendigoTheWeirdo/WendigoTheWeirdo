@@ -16,6 +16,11 @@
 
 ♰ I like to meet furry animals on GitHub and am willing to be friends with them. ♰
 
+♰ If you want to add me on Discord... Here's my Discord user! ♰
+<img width="105" height="17" alt="Screenshot 2026-08-29 125115" src="https://github.com/user-attachments/assets/d1f0b9ec-4ffc-437d-a497-3474544ff210" />
+
+
+
 <img width="338" height="600" alt="tumblr_cbdd57503f28dafbfdf525271b1ec728_461370ae_400" src="https://github.com/user-attachments/assets/a90b5933-88e0-4b0c-861c-67e0377c0feb" />
 
 
